@@ -1,1 +1,2 @@
 # SaveEarth
+As of 2020, more than [six Nigerians out of 10 never heard about climate change.](https://www.statista.com/statistics/1269701/knowledge-of-climate-change-topic-in-nigeria-by-area/#:~:text=As%20of%202020%2C%20more%20than,Nigeria%20than%20in%20rural%20areas.) Additionally, 
